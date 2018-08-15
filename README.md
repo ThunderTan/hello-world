@@ -4,4 +4,4 @@ just another repository
 
 hi gays.
 i like codes.
-jion us and crate new.
+jion us and create new.
